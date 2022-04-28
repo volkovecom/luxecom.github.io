@@ -3,4 +3,4 @@ Luxecom.ru фокусируется на предоставлении высок
 
 [НУЖНА ПОМОЩЬ] (https://t.me/volkovecom)
 
-Official Business Name: IE Volkov Evgeny Alexandrovich; Email Contact: [Evgeniy.Volkov@luxecom.ru] (mailto:Evgeniy.Volkov@luxecom.ru); Primary Contact: +7 (902) 302-05-93; Registration Number: 319527500138763; INN: 523701215736.
+Official Business Name: IE Volkov Evgeny Alexandrovich; Email Contact: Evgeniy.Volkov@luxecom.ru; Primary Contact: +7 (902) 302-05-93; Registration Number: 319527500138763; INN: 523701215736.
